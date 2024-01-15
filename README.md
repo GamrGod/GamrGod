@@ -2,6 +2,6 @@ Hey boys im a GamrGod.
 
 Free games.
 
-Website: https://www.sites.google.com/citrusexploits/home/
+Website: https://sites.google.com/view/citrusexploits/
 
 Yeh.
